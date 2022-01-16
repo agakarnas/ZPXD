@@ -1,1 +1,1 @@
-# Zaj-cia-Programowania-xD
+# Zajecia-Programowania-xD
